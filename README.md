@@ -3,7 +3,7 @@
 
 Listen. 
 
-Emile Jacques-Dalcroze recognized that music is movement.
+Emile Jacques-Dalcroze recognized that music is movement. 
 Rhythm is everywhere down to the beat of our walk -  a regular pulse of left right left right. 
 
 When we take a step and swing our body onto one foot, we are unbalanced, about to fall... 
