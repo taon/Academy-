@@ -17,6 +17,5 @@ Was that the most awesome walk? How can you change it to be more awesome?
 
 Now play to match the way you were moving.
 Music is always going forward, with feeling.
-
 Your entire body is your primary instrument. 
 Learning is fun.
